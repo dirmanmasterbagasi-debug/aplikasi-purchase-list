@@ -1,1 +1,0 @@
-# aplikasi-purchase-list
